@@ -64,3 +64,17 @@ ___
 
 + ### **Faculty of Humanities, Uniport. :**  FHUSA Melting Pot Award - (2013, 2014, 2015).
 ***
+
+## _Skills_
+***
+* ### **Full Stack Web Developer :**  HTML, CSS, Javascript, jQuery, Node, React, MongoDB etc...
+
+* ### **Design and Photography :**  Adobe Photoshop, Ai, Corel Draw etc...
+
+* ### **Digital Marketing :** Googleadwords, SEO, Keywords Everywhere etc...
+
+* ### **Detail Oriented and Problem Solving Skills.**
+
+* ### **Good Verbal And Written Communication Skills.**
+
+* ### **Analytical Thinking and Personnel Management.**
