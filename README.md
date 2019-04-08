@@ -78,3 +78,17 @@ ___
 * ### **Good Verbal And Written Communication Skills.**
 
 * ### **Analytical Thinking and Personnel Management.**
+
+## _Interests and Hobbies_
+***
+* ### **Reading.** 
+
+* ### **Travelling.** 
+
+* ### **Designing Things.** 
+
+* ### **Creating Art.**
+
+* ### **Footbal and Music.**
+
+* ### **Learning New Things.**
