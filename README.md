@@ -46,3 +46,9 @@ ___
 + ### **ChifJarul Photography, Uniport. :** Photographer and Designer, - (2015).
 
 ___
+
+## _Research_
+
+***
+> Egbo Uchenna (2015), “The girl-child education; A case study of Owo, Nkanu-East L. G. A,Enugu State. (B.A Project, University of Port Harcourt , Choba ).
+---
