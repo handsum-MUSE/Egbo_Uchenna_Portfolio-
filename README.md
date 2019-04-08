@@ -13,3 +13,11 @@ ___
 
 ### **State Of Origin :**  Enugu State.
 ___
+
+## _Personal Statement_
+
+***
+> A highly creative and self-motivated individual, a builder and a developer, a fast learner and a meticulous researcher with good analytical and problem solving skills.
+> An aspiring global tech entreprenuer with focus on building life changing solutions for African and the world.
+
+---
