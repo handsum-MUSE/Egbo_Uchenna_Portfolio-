@@ -14,6 +14,7 @@ ___
 ### **State Of Origin :**  Enugu State.
 ___
 
+
 ## _Personal Statement_
 
 ***
@@ -21,3 +22,13 @@ ___
 > An aspiring global tech entreprenuer with focus on building life changing solutions for African and the world.
 
 ---
+
+## _Education And Qualifications_
+
+---
+* ### **University Of Port Harcourt, Choba. :**  B.A(Religious and Cultural Studies) Second Class Upper Division - (2016).
+
+- ### **Akunne Oniah Memorial High School :**  West African Senior Secondary Council Examinations (WASSCE) - (2009).
+
++ ### **Sacred Heart Nur/Pri School Odoakpu, Onitsha :**  First School Leaving Certificate. (FSLC) -(2003).
+___
