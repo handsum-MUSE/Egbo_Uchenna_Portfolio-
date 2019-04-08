@@ -32,3 +32,17 @@ ___
 
 + ### **Sacred Heart Nur/Pri School Odoakpu, Onitsha :**  First School Leaving Certificate. (FSLC) -(2003).
 ___
+
+## _Working Experience_
+***
+* ### **Decagon Institute, Lekki. :**  Software Engineer - (Present).
+
+- ### **Cencash Systems Limited, Port Harcourt. :**  Chief Technology Officer - (2018).
+
++ ### **Government Day Secondary School, Kashimbila. :**  Educator - (2017).
+
++ ### **Indorama Petrochemicals and Fertilizers, Eleme. :**  Bar Assistant Manager - (2016).
+
++ ### **ChifJarul Photography, Uniport. :** Photographer and Designer, - (2015).
+
+___
