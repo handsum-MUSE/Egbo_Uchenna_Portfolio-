@@ -52,3 +52,15 @@ ___
 ***
 > Egbo Uchenna (2015), “The girl-child education; A case study of Owo, Nkanu-East L. G. A,Enugu State. (B.A Project, University of Port Harcourt , Choba ).
 ---
+
+## _Associations and Professional Qualifications_
+
+***
+* ### **Department of Religious and Cultural Studies, Choba Uniport. :**  Most Innovative President - (2015).
+
+- ### **Rotaract Club of Uniport, Port Harcourt. :**  World Class Treasurer - (2015).
+
++ ### **Student Union Government (SUG), Uniport. :**  Distinguished Senator - (2015).
+
++ ### **Faculty of Humanities, Uniport. :**  FHUSA Melting Pot Award - (2013, 2014, 2015).
+***
